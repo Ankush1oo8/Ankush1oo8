@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Java ,C++, Python, Web dev**
 
-- 📫 How to reach me **chudiwalankush0@gmail.com**
+- 📫 How to reach me **ankushchudiwalwit@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
